@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @t9ipe
+- 👀 I’m interested in:играть в игры на этом все.
+- 💞️ I’m looking to collaborate on:никем
+- 📫 How to reach me:тг @W0RKSIZE
+- 😄 Pronouns:хз
+- ⚡ Fun fact:Если смотреть на хлеб ему будет похуй
